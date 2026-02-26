@@ -1,2 +1,2 @@
 # someday
-i want to be hacker
+i want to be hacker :p
